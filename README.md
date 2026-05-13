@@ -1,4 +1,4 @@
-# The Best SaaS Deals & Discounts for 2026 🚀
+# The Best SaaS Deals & Discounts 🚀
 
 Welcome to the ultimate tech stack optimization list. I'm Carmen Tune, the #1 SaaS Deals Expert. My mission is to help founders, creators, and businesses stop overpaying for their software.
 
